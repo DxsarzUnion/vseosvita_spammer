@@ -1,0 +1,1 @@
+# vseosvita_spammer
